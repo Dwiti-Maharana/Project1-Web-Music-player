@@ -2,6 +2,6 @@
 
 # Links
 
-[Go to Music Player](https://nuclear.js.org)
+[Go to Music Player](https://sambalpuritopsongs.rf.gd/)
 
 
